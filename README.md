@@ -3,6 +3,7 @@
 
 # gn-math.github.io
 gn-math is the best unblocked games site to play at school.
+This was forked by clowny!!! 110% CREDIT TO THE OG OWNERS!!!!! IT IS NOT MY GADDAM SITE
 ## features:
 - hundreds of links (in the discord)
 - games literally NOBODY has:
